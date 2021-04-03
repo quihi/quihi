@@ -1,8 +1,8 @@
-Hi, I’m @quihi!
+Hi, I’m quihi!
 
 This is my fandom account.  It will contain various bits of code I use for FFN and AO3.
 
-[FFN](https://www.fanfiction.net/u/3380329/) ✧ [AO3](https://archiveofourown.org/users/Quihi) ✧ [Fandom](https://mysteriousbenedictsociety.fandom.com/wiki/User:QuietHiker) ✧ [Dreamwidth](https://quihi.dreamwidth.org/)
+[FFN](https://www.fanfiction.net/u/3380329/) ✧ [AO3](https://archiveofourown.org/users/Quihi) ✧ [Fandom](https://mysteriousbenedictsociety.fandom.com/wiki/User:QuietHiker) ✧ [Dreamwidth](https://quihi.dreamwidth.org/) ✧ [Tumblr](https://quihi.tumblr.com/)
 
 <!---
 quihi/quihi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
